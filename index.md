@@ -194,7 +194,9 @@ Obviously my tiers and rankings are subjective, I'm not a huge Slice of Life fan
 
 *Description:* After getting stuck in an MMORPG, MC decides to use his overwhelming power to conquer the world
 
-*Comments:* OP MC done right, also does the ""villain"" MC concept really well, the show can feel a bit schizophrenic with switching focuses a lot, but it does a really good job of telling lots of smaller, somewhat contained stories within the larger arc of world domination
+*Comments:* OP MC done right, also does the "
+villain"
+ MC concept really well, the show can feel a bit schizophrenic with switching focuses a lot, but it does a really good job of telling lots of smaller, somewhat contained stories within the larger arc of world domination
 
 
 
@@ -204,7 +206,9 @@ Obviously my tiers and rankings are subjective, I'm not a huge Slice of Life fan
 
 *Categories:* Game, Skill Acquisition, Fantasy, Action
 
-*Description:* MC is an avid ""trash gamer"", beating even the most awful VR titles, and applies all his skills to a high quality VRMMO
+*Description:* MC is an avid "
+trash gamer"
+, beating even the most awful VR titles, and applies all his skills to a high quality VRMMO
 
 *Comments:* One of the best VRMMO shows, it stays self aware and has plenty of humor while also feeling high stakes
 
@@ -354,7 +358,9 @@ Obviously my tiers and rankings are subjective, I'm not a huge Slice of Life fan
 
 *Description:* Thousands of players are trapped in an MMORPG, and must work together to reform society and try to navigate their new world
 
-*Comments:* Overall a great show, it definitely has its flaws, like the newbie arc in the 2nd season, and season 3 didn't accomplish a lot, but it has lots of unique ideas and does the ""trapped in an MMORPG"" really well, with a great mastermind MC
+*Comments:* Overall a great show, it definitely has its flaws, like the newbie arc in the 2nd season, and season 3 didn't accomplish a lot, but it has lots of unique ideas and does the "
+trapped in an MMORPG"
+ really well, with a great mastermind MC
 
 
 
@@ -366,7 +372,7 @@ Obviously my tiers and rankings are subjective, I'm not a huge Slice of Life fan
 
 *Description:* World-class medical researcher reincarnates and uses his newfound magic to accelerate medical treatment
 
-*Comments:* Well-executed Isekai using past-life knowlege, the build-up is exciting and leads to an excellent high stakes showdown
+*Comments:* Well-executed Isekai using past-life knowledge, the build-up is exciting and leads to an excellent high stakes showdown
 
 
 
@@ -450,7 +456,7 @@ Obviously my tiers and rankings are subjective, I'm not a huge Slice of Life fan
 
 *Description:* Being rejected at a young age by her village, MC with vague memories of a past life scavenges to get by and raise her new slime companion
 
-*Comments:* Very comfy and fun fantasy setting, it has enough going on to keep it interesting, along with slow but intruiguing world building and charming characters
+*Comments:* Very comfy and fun fantasy setting, it has enough going on to keep it interesting, along with slow but intriguing world building and charming characters
 
 
 
@@ -548,7 +554,9 @@ Obviously my tiers and rankings are subjective, I'm not a huge Slice of Life fan
 
 *Categories:* Fantasy, Harem, Action
 
-*Description:* Banished from his party, MC manages to tame an ""ultimate species"", and begins turning his failure around
+*Description:* Banished from his party, MC manages to tame an "
+ultimate species"
+, and begins turning his failure around
 
 *Comments:* Unapologetic harem builder with an overly nice MC, still stays pretty fun and is good for a comfy watch
 
@@ -596,7 +604,7 @@ Obviously my tiers and rankings are subjective, I'm not a huge Slice of Life fan
 
 *Categories:* Fantasy, Slice of Life, Comedy
 
-*Description:* After being summoned and finding he only has the unknown ""Online Shopping"" skill, MC is allowed to go as he's deemed not useful, but not everyone agrees
+*Description:* After being summoned and finding he only has the unknown "Online Shopping" skill, MC is allowed to go as he's deemed not useful, but not everyone agrees
 
 *Comments:* Probably my favorite cooking Isekai, while there's plenty of gushing about food, there's also a good mix of humor and merchant fun
 
@@ -742,7 +750,7 @@ Obviously my tiers and rankings are subjective, I'm not a huge Slice of Life fan
 
 *Description:* Professional wrestler is summoned to a fantasy world and proceeds to suplex its inhabitants and pursue his true dream: opening up a pet shop
 
-*Comments:* Pretty hilarious show, the ""furry wrestler Isekai"", the jokes can get a bit repetitious, but overall it's entertaining and unique
+*Comments:* Pretty hilarious show, the "furry wrestler Isekai", the jokes can get a bit repetitious, but overall it's entertaining and unique
 
 
 
@@ -800,9 +808,9 @@ Obviously my tiers and rankings are subjective, I'm not a huge Slice of Life fan
 
 *Categories:* Fantasy, Action
 
-*Description:* An adventuring party forms of members fed up with society, each agreeing to keep their nose out of eachother's business
+*Description:* An adventuring party forms of members fed up with society, each agreeing to keep their nose out of each other's business
 
-*Comments:* Mixing seemingly anachronistic tech and culture with a fanatasy setting, the unique world and characters are enjoyable, but nothing too exciting here
+*Comments:* Mixing seemingly anachronistic tech and culture with a fantasy setting, the unique world and characters are enjoyable, but nothing too exciting here
 
 
 
@@ -860,7 +868,7 @@ Obviously my tiers and rankings are subjective, I'm not a huge Slice of Life fan
 
 *Categories:* Romance, Harem, Ecchi, Fantasy, Action
 
-*Description:* After following the girl he likes into a portal, he is made the ""ring king"" and must marry 4 other ring princesses to gain power
+*Description:* After following the girl he likes into a portal, he is made the "ring king" and must marry 4 other ring princesses to gain power
 
 *Comments:* A blatant harem builder with heavy ecchi, and a typical harem MC that's too scared to make a move, but overall it's good fun
 
@@ -874,7 +882,9 @@ Obviously my tiers and rankings are subjective, I'm not a huge Slice of Life fan
 
 *Description:* Reincarnated as the 8th son of a poor, but noble family, MC discovers he has the rare gift for magic and must navigate the politics of his new world
 
-*Comments:* One of the better ""generic"" isekais, the show really shines when dealing with the politicking and social issues around nobility, and really gives good weight to those issues
+*Comments:* One of the better "
+generic"
+ isekais, the show really shines when dealing with the politicking and social issues around nobility, and really gives good weight to those issues
 
 
 
@@ -1044,7 +1054,7 @@ Obviously my tiers and rankings are subjective, I'm not a huge Slice of Life fan
 
 *Categories:* Fantasy, Romance
 
-*Description:* Finding herself as the villainness of an otome game, MC sets out to avoid her fate by marrying the demon king
+*Description:* Finding herself as the villainess of an otome game, MC sets out to avoid her fate by marrying the demon king
 
 *Comments:* Begins well, it's an entertaining premise and the romance is fun, but it seems a bit rushed by the end
 
@@ -1104,9 +1114,13 @@ Obviously my tiers and rankings are subjective, I'm not a huge Slice of Life fan
 
 *Categories:* Comedy, Slice of Life, Fantasy, Harem, Romance
 
-*Description:* Stuck inside a romance ""choose your own adventure"" game, but as the game's villainess, our MC must find a way to avoid her impending doom
+*Description:* Stuck inside a romance "
+choose your own adventure"
+ game, but as the game's villainess, our MC must find a way to avoid her impending doom
 
-*Comments:* Not my kind of show, personally, but the humor was decent, with a fun premise. The show suffers from the ""one character's arc per episode"" syndrome, but isn't a bad watch overall
+*Comments:* Not my kind of show, personally, but the humor was decent, with a fun premise. The show suffers from the "
+one character's arc per episode"
+ syndrome, but isn't a bad watch overall
 
 
 
@@ -1140,7 +1154,7 @@ Obviously my tiers and rankings are subjective, I'm not a huge Slice of Life fan
 
 *Categories:* Fantasy, Slice of Life
 
-*Description:* A mysterious door to a restauarant appears at various intervals across a fantasy land, and serves a variety of clientele
+*Description:* A mysterious door to a restaurant appears at various intervals across a fantasy land, and serves a variety of clientele
 
 *Comments:* A bit repetitious and episodic, but fairly beautiful art and interesting characters, if you like cooking shows, you may get a kick out of the fantasy element
 
@@ -1304,7 +1318,9 @@ Obviously my tiers and rankings are subjective, I'm not a huge Slice of Life fan
 
 *Categories:* Ecchi, Harem, Comedy, Action, Fantasy
 
-*Description:* MC has to gain the trust and have sexytimes with each member of an oversized harem in order to produce ""Star Children"" to help them defeat an enemy in order to return home
+*Description:* MC has to gain the trust and have sexytimes with each member of an oversized harem in order to produce "
+Star Children"
+ to help them defeat an enemy in order to return home
 
 *Comments:* Bounces between comedy, seriousness, action, ecchi, harem, and honestly just does a poor job of all of them, really not worth the watch
 

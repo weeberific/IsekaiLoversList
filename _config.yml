@@ -9,7 +9,7 @@ kramdown:
   math_engine: mathjax
   syntax_highlighter: rouge
 title: List of 110 Dubbed Anime for Isekai Lovers
-description: Dubbed Anime for those who love Isekai and similar shows, with MAL links, episode counts, descriptions, and my short review
+description: Dubbed Anime for those who love Isekai and similar shows, with MAL links, episode counts, categories, descriptions, and my short review
 remote_theme: pages-themes/merlot@v0.2.0
 plugins:
 - jekyll-remote-theme # add this line to the plugins list if you already have one
